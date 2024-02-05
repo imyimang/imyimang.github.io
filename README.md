@@ -1,6 +1,1 @@
-# blog
-# website
-# net
-# net
-# net
-# net
+2022黑歷史勿噴
