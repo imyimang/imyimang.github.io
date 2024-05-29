@@ -1,2 +1,3 @@
-2022黑歷史
-[點我](https://imyimang.github.io/old_website/)
+# 該網站已封存
+2022舊個人網站
+新網站開發中...
